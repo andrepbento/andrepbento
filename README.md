@@ -5,7 +5,7 @@
 - 👀 Interested in **Distributed Systems, Integration Systems, Cloud Computing**, and related topics  
 - 🗣️ Languages: Native **Portuguese**, fluent **English**, conversational **French** and **Spanish**  
 - 🌱 Always learning — right now: **playing guitar 🎸** and improving my **French**  
-- 🏞️ Sports & outdoors enthusiast: **swimming 🏊🏻‍♂️, cycling 🚴🏻‍♂️, running 🏃🏻‍♂️, and long walks in the wilderness 🏞️ (travel lover over here! 🙋🏻‍♂️✈️)
+- 🏞️ Sports & outdoors enthusiast: **swimming 🏊🏻‍♂️, cycling 🚴🏻‍♂️, running 🏃🏻‍♂️, and long walks in the wilderness 🚶🏻 (travel lover over here! 🙋🏻‍♂️✈️)
 
 ---
 
